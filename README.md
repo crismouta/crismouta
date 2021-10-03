@@ -6,5 +6,5 @@ Seeking to support innovative products as a software developer, as well as grow 
 
 
 📫  Contacto:
-- crismouta@gamil.com
+- crismouta@gmail.com
 - [Linkedin](https://www.linkedin.com/in/cris-mouta/)
